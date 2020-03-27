@@ -6,7 +6,7 @@ i don’t want you to be a-lone!
 young man! here you can be ok!  
 i said, young man, even if you’re not gay!  
 i said, come here! to my wonderful stream!  
-___________________________________  
+... 
 
 
 it’s fun to stay here at myyy music stream!  
