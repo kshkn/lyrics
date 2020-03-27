@@ -34,6 +34,8 @@
 
 [hymn for the music stream](music%20stream.md)
 
+[raiding men](raiding%20men.md)
+
 [стрим, которого нет](стрим%2C%20которого%20нет.md)
 
 [молод орешничек](молод%20орешничек.md)
