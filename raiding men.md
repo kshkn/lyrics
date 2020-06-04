@@ -15,7 +15,7 @@ C                   D               B7              Em
 it's raiding men! welcome viewers! it's raiding men! amen!  
 it's raiding men! I am Julia! it's raiding men! amen!  
 
- ///////////////////////////////////////////////////////
+ ///////////////////////////////////////////////////////  
  C                  D               B7              Em
 it's raiding men! welcome viewers! it's raiding men! amen! 
  C                              Am
