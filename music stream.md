@@ -28,7 +28,7 @@ You can hang out with girls and boys!
 D                           G  
 it’s fun to stay here at myyy music stream!  
 Em  
-it’s fun to stay here at myyy music stream! 
+it’s fun to stay here at myyy music stream!   
 Am   
 You can always be in, you can play, dance and sing!  
 D7  
