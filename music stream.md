@@ -22,7 +22,7 @@ it’s fun to stay here at myyy music stream!
                       Em    
 it’s fun to stay here at myyy music stream!  
 Am                      C  
-We have everything you need to enjoy!
+We have everything you need to enjoy!  
 D7   
 You can hang out with girls and boys!  
 D                           G  
