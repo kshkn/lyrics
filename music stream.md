@@ -6,7 +6,7 @@ Em
 i said, young man, let the party begin!  
 C  
 i said, young man, i will sing you a song!  
-D             C    D  C   G  
+D             C    D  C   D   
 i don’t want you to be a-lone!  
 
 G  
@@ -21,7 +21,7 @@ D                           G
 it’s fun to stay here at myyy music stream!  
                       Em    
 it’s fun to stay here at myyy music stream!  
-Am  
+Am                      C  
 We have everything you need to enjoy!
 D7   
 You can hang out with girls and boys!  
