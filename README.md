@@ -78,7 +78,7 @@
 
 -----
 
-[Дискография](https://kshkn.github.io/)
+[Дискография](https://koshkamoroshka.com/)
   
 Copyright © 2013-2022 [Юля Кошкина](https://vk.com/koshkamoroshka), Иркутск, Москва
 
